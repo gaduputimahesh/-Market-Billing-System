@@ -8,8 +8,7 @@ One customer visited my supermarket his name is Rocky and he Purchased Items
 
 ![Screenshot (174)](https://github.com/user-attachments/assets/d5575493-f0a1-42f0-9166-2a3c8635a2c1)
 
-
-
+⭐# Star this repo if you find it useful! ⭐
 
 
 
